@@ -1,1 +1,2 @@
-I am relatively new to coding. Therefore, I am starting my journey here.
+Move like everything is gonna work out. 
+Because it is. 
